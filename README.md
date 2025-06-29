@@ -13,3 +13,4 @@
 
 
 http://niwanoda.web.fc2.com/index.html
+https://letter.midori-japan.co.jp/letter-manners/
